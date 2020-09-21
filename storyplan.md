@@ -24,3 +24,5 @@ I also have _really_ sharp hearing. (oh well, not as good as a dog or kit fox's)
 ### Adapt to temperature
 Since I live in the Arctic where the temperature can be ***really cold***, I have to adapt to the low temperatures. To begin with, my body size already reduces heat loss as I have a low surface area to volume ratio :D
 To reduce heat loss even more, I like to curl up tightly and tuck my head and legs under my body and behind my furry tail. 
+
+![Image of Arctic Fox3](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.dreamstime.com%2Fphotos-images%2Fsleeping-arctic-fox.html&psig=AOvVaw0ajtWfE9WAeY4VotxIC8b0&ust=1600779065565000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJjgmfCk-usCFQAAAAAdAAAAABAi)
